@@ -63,7 +63,7 @@ Here are a few things I've been working on:
 
 - 🌐 **[LinkedIn Profile](https://www.linkedin.com/in/boya-raghuveera/)**  
     → Let’s connect! I'm open to internships, collaborations & networking.
-- 📧 **Email**: [raghuveeraboya3@gmail.com](mailto:raghuveeraboya3@gmail.com)
+- 📧 **Email**: [boyaraghuveera487@gmail.com](mailto:boyaraghuveera487@gmail.com)
 
 ---
 
